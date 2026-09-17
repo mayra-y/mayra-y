@@ -1,4 +1,4 @@
-# Mayra Yapur 
+# Mayra Y.
 ## Data Analyst
 
 
